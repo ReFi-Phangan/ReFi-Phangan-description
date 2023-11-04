@@ -18,7 +18,7 @@
 - Impact NFT Collection in collaboration with EcoSynthesisX and local NGOs/Communities on Koh Phangan:
   - a) [Post Link](https://x.com/luminaenvision/status/1719739900139090381?s=46&t=5VQQIz8HA0Yf7tgLe5R0WA) | [Image Link](https://bafybeihn74x6gmoyqnol74l64c4lj32kabepxguqeut6zzcy24q2oghegq.ipfs.w3s.link/IMG_9362.jpeg)
   - b) [Post Link](https://x.com/luminaenvision/status/1720050141774959029?s=46&t=5VQQIz8HA0Yf7tgLe5R0WA) | [Image Link](https://bafybeigsspectnsxjutghqqc23txabq4t6i3a2hwcddbg4l2xvzxfkeymi.ipfs.w3s.link/IMG_9363.jpeg)
-- Regenerative Practices on the Ground: Cleanups and Recyclables Collection
+- Regenerative Practices on the Ground: Cleanups and Recyclables Collection. Using Evergreen coin proof of Environment.
   - [Post Link](https://x.com/refiphangan/status/1710514940195536980?) | [Image Link](https://bafybeibyjktvdaati2tay3sbrd5l6yfdbqhzabcdpoddbpszgoiu5loq6a.ipfs.w3s.link/IMG_9356.jpeg)
 - Berlin Science Week
   - [Post Link](https://x.com/greenpillger/status/1719340045541179506?) | [Image Link](https://bafybeievtxdk734eafziol7ild7v74lzlwv5jaayfpdv223ror4gdjrona.ipfs.w3s.link/IMG_9357.jpeg)
