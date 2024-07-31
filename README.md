@@ -27,11 +27,9 @@ Our epic goal is to benefit the environment of the entire island by organizing a
 
 ### Meet Our Team
 
-**Paul Burg** - Co-Founder & CEO. Background: environmental scientist with extensive experience in sustainability projects.
-
-**Anastasia Lumina** - Co-Founder & COO. Background: environmental activist and blockchain enthusiast.
-
-**Juna Tolcucci** - Community Coordinator. Background: community organizer with extensive experience in environmental education and outreach.
+**Paul Burg** - Co-Founder. Background: environmental scientist, blockhain enthusiast and non profit activist
+**Anastasia Lumina** - Co-Founder. Background: environmental activist and blockchain enthusiast.
+**Juna Tolcucci** - Community Coordinator. Background: community and events organizer.
 
 ### Join Us in Making a Difference
 
