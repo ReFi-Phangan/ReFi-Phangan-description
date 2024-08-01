@@ -1,6 +1,6 @@
 #### Towards a Sustainable Future with Regenerative Finance and Community Engagement
 
-[![Image](https://beige-defiant-spoonbill-537.mypinata.cloud/ipfs/QmenJAv55AUpnPwDVGCKkN8bXarNLnNW8kj4kAHdeAphZk)
+![Image](https://beige-defiant-spoonbill-537.mypinata.cloud/ipfs/QmenJAv55AUpnPwDVGCKkN8bXarNLnNW8kj4kAHdeAphZk)
 
 ### Our Mission
 
